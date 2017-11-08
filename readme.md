@@ -1,1 +1,12 @@
-Hey dis the read me. 
+THE BEST COHORT EVA:
+--Quinn
+--Court
+--Emma
+--Nat
+--Jared
+--Cameron 
+--Jeff
+--Marissa
+--Wes
+--Ryan
+--Mike 
